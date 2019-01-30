@@ -35,5 +35,5 @@ SUBSCRIBE To My Channel: https://www.youtube.com/channel/UCgHv9Yafz90QSjb4-ISBD4
 
 Disclamer:
 
-I, The Crusader, am not responsible for ANY bans or anything that could happen if/while you use this menu online. Use this menu Offline/Online at youre own risk.
+I, Iconic Gaming, am not responsible for ANY bans or anything that could happen if/while you use this menu online. Use this menu Offline/Online at youre own risk.
 But by using this OFFLINE you will not be banned.
