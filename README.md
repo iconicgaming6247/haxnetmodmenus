@@ -1,4 +1,4 @@
-# haxnetmodmenus
+# haxnetmodmenu
 
 
 Must Have Num Lock On!
